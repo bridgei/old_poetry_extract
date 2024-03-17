@@ -1,6 +1,6 @@
-Morning heron – Suchness1
+# Morning heron
 
-Nearing the lake, this early walk is ending.
+> Nearing the lake, this early walk is ending.
 The grey heron —glimpsed through the bushes in the gloomy dawn light earlier— is on the far shoreline now.
 With slow sure-footed strides and steady gaze it prowls; serenely searching sustenance.
 I peer across waters painted dazzling gold by rays of this low September sun.
